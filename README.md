@@ -214,4 +214,4 @@ Koplayer is available for **free download**, and it includes the full version wi
 Don't miss out on the chance to elevate your Android experience on Windows — **download Koplayer now for free!**
 
 ---
-**Last updated:** 2026-10-23 23:41:08 UTC
+**Last updated:** 2026-10-24 02:04:27 UTC
